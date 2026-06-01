@@ -1,7 +1,7 @@
 # strobozootrope
 Optical animation DIY system 
 
-lien vers site
-lien vers insta
 
+www.strobozootrope.fr
+https://www.instagram.com/strobozootrope/
 
